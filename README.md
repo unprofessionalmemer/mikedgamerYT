@@ -1,1 +1,1 @@
-today is a good day to by not dead
+today is a good day to be not dead
